@@ -1,6 +1,6 @@
 # Induction-Program
 Name-Tajvinder Singh 
-#Day-1
+##Day-1
 My first day at gndec was a delightful day ,it started with shabad kirtan at gurdwara Sahib in gndec campus.It was a perfect start.
 The atmosphere of auditorium was very energetic,stage was beautifully decorated and it felt so good to sit among my new peers.
 After few minutes host invited Harpreet Mam ,her words were really helpful and guiding for us.
