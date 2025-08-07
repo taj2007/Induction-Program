@@ -22,7 +22,8 @@ I learned alot of things which were surpring for me and other students.
 I came to know about millets and how useful they are for us . Her knowledge about millets helped us to realize benifits of millets and she also talked about cooking and eating methods to maximize fer nutrition intake from it.  
 #Day-5.    
 our fifth day started with a valuable information about gndec campus and various facilities it provide by Dr  Parminder Singh .it included facilities like sports, hostel, computer lab, library, dispensary,atm and transportation facility.   
-Then their was a lecture by Mr Manpreet Singh on fitness.He motivated us to maintain our physical fitness along with our studies.He also inspired us to build good habits and stay away from drugs.Many students asked questions about fitness and gym. 
+Then their was a lecture by Mr Manpreet Singh on fitness.He motivated us to maintain our physical fitness along with our studies.He also inspired us to build good habits and stay away from drugs.Many students asked questions about fitness and gym.    
+Our seniors from NCC informed us about activities and responsibilities of NCC .They also told us about various fields of NCC and carrier after opting for NCC.  Then chief guest Brigadier P.S. Cheema arrived.He motivated us and told about what he learned in years of service in army.
 
 
 
