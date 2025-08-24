@@ -1,13 +1,13 @@
 # Induction-Program.  
 Name-Tajvinder Singh.  
-#Day-1.(30 July , 2025).   
+ #Day-1.(30 July , 2025).   
 My first day at gndec was a delightful day ,it started with shabad kirtan at gurdwara Sahib in gndec campus.It was a perfect start.
 The atmosphere of auditorium was very energetic,stage was beautifully decorated and it felt so good to sit among my new peers.  
 After few minutes host invited Harpreet Mam ,her words were really helpful and guiding for us.  
 Then our principal sir inspired us with his speech and it filled us with enthusiasm.  
 Nest the AGDP officer shared invaluable insights on karma and delayed reward for good deeds.
 That day I learned alot of lessons that will help me to grow in my journey.    
-#Day-2.(1 August ,2025)        
+ #Day-2.(1 August ,2025)        
 On second day , Dr priya drashni mam gave an insightful lecture on Universal Human Values.It really helped me to gain clarity about my purpose and it also taught me the right way to approach all the problems of life.    
 Then Dr arvind dhingra sir helped me to interact with others easily 
 He called 7 boys and 7 girls on stage for activity.Winner team got packet of chocolates as reward then he called 11 boys and 11 girls for another activity.It was really fun and I learned alot through these activities.  
