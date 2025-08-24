@@ -11,7 +11,7 @@ That day I learned alot of lessons that will help me to grow in my journey.
 On second day , Dr priya drashni mam gave an insightful lecture on Universal Human Values.It really helped me to gain clarity about my purpose and it also taught me the right way to approach all the problems of life.    
 Then Dr arvind dhingra sir helped me to interact with others easily 
 He called 7 boys and 7 girls on stage for activity.Winner team got packet of chocolates as reward then he called 11 boys and 11 girls for another activity.It was really fun and I learned alot through these activities.  
-#Day-3.(4 August ,2025)         
+ #Day-3.(4 August ,2025)         
 My third day started with a lecture from our seniors on causmic club .They informed us about various activities and responsibilities of causmic club.They also showed us their Instagram page and website which was very professionally managed.It inspired me to join them as it helps to grow our leadership, communication and various other skills.  
 I had opportunity to attend insightful lecture by priya darshni
 mam and it was again an eye opening experience.it really taught me about purpose and importance of relationships in life. she also talked about how we are just focusing on physical facilities rather than getting right understanding about ourselves.  
